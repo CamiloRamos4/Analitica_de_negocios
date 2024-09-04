@@ -13,7 +13,7 @@ Ejemplo de acercamiento a herramientas de analítica de negocios como Power BI, 
 2. Primeros pasos
 3. Mis proyectos 
 
-[Camilo Ramos Amado](www.linkedin.com/in/camilo-ramos327/)
+[Universidad Externado de Colombia](https://www.uexternado.edu.co)
 
 
 
